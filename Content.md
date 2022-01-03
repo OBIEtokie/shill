@@ -36,3 +36,19 @@ Organic Growth Community Token
 Community Prizes!
 
 **#3**
+
+OBIEtokie is Live Now!
+FREE OBIE NFT Airdrop with each $100k MC Reached
+Must Hold 1,000,000,000 OBIES to be Eligible for Prize
+
+Stealth Launched 02/01/2022
+Organic Growth Community Token
+Community Prizes!
+
+Welcome OBIE to Crypto
+The Cutest Ferret
+Stash Your Tokies
+New NFT Collection Coming
+Ticker $$$ OBIES
+
+**#4**
