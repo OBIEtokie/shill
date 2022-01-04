@@ -75,6 +75,7 @@ TICKER 🚀 OBIES
 
 💞 1,000,000,000,000 OBIES Initial Supply
 🔐 1 year Locked LP MudraLocker
+💎 Diamond Handed Dev and Community
 
 
 🦦OBIEnfts Are Available NOW 
@@ -85,7 +86,7 @@ TICKER 🚀 OBIES
 
 📇 0x72d042b033ea465ed2f532f5d03926d8f956d7a3
 
-LINKS
+💎 LINKS 💎
 Website: https://www.OBIEtokie.com
 Telegram: t.me/OBIEtokie
 Pancakeswap: https://pancakeswap.finance/swap?outputCurrency=0x72d042b033ea465ed2f532f5d03926d8f956d7a3
