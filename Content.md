@@ -52,3 +52,43 @@ New NFT Collection Coming
 Ticker $$$ OBIES
 
 **#4**
+
+🦦🔥 OBIEtokie (OBIES) 🔥🦦 COMMUNITY MEME TOKEN 🔥 STEALTH LAUNCHED 02/01/2021 🔥 HONEST DEV 🔥 DIAMOND HANDED COMMUNITY 🔥 RENOUNCED CONTRACT 🔥 
+
+TICKER 🚀 OBIES
+
+💛 Crypto Community Meme/Brand Token
+🌍 We want to bring the crypto space closer together
+
+🦦 Obie is the Devs Ferret 🦦
+
+💰 Stash your Bag and Burrow your OBIES.
+
+📈 Tokenomics
+❤️ 5% Redistribute OBIES to Burrowers
+☑️ 3% Auto LP
+📣 2% Marketing
+
+❎ No Presale 
+⚠️ Stealth Launched 2nd Jan 2022
+🚫 RENOUNCED CONTRACT
+
+💞 1,000,000,000,000 OBIES Initial Supply
+🔐 1 year Locked LP MudraLocker
+
+
+🦦OBIEnfts Are Available NOW 
+📢 NFT Giveaways in the Telegram Group! 
+
+🏴󠁧󠁢󠁳󠁣󠁴󠁿 Scottish Dev
+🚀 Clothing Line In Development
+
+📇 0x72d042b033ea465ed2f532f5d03926d8f956d7a3
+
+LINKS
+Website: https://www.OBIEtokie.com
+Telegram: t.me/OBIEtokie
+Pancakeswap: https://pancakeswap.finance/swap?outputCurrency=0x72d042b033ea465ed2f532f5d03926d8f956d7a3
+Poocoin: https://poocoin.app/tokens/0x72d042b033ea465ed2f532f5d03926d8f956d7a3
+Bogged: https://charts.bogged.finance/?c=bsc&t=0x72d042b033ea465ED2F532f5D03926d8F956D7A3
+Tokensniffer: https://tokensniffer.com/token/0x72d042b033ea465ed2f532f5d03926d8f956d7a3
