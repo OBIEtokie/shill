@@ -53,87 +53,65 @@ Ticker $$$ OBIES
 
 **#4**
 
-🦦🔥 OBIEtokie (OBIES) 🔥🦦 COMMUNITY MEME TOKEN 🔥 STEALTH LAUNCHED 02/01/2021 🔥 HONEST DEV 🔥 DIAMOND HANDED COMMUNITY 🔥 RENOUNCED CONTRACT 🔥 
 
-TICKER 🚀 OBIES
-
-💛 Crypto Community Meme/Brand Token
-🌍 We want to bring the crypto space closer together
-
-🦦 Obie is the Devs Ferret 🦦
-
-💰 Stash your Bag and Burrow your OBIES.
-
-📈 Tokenomics
-❤️ 5% Redistribute OBIES to Burrowers
-☑️ 3% Auto LP
-📣 2% Marketing
-
-❎ No Presale 
-⚠️ Stealth Launched 2nd Jan 2022
-🚫 RENOUNCED CONTRACT
-
-💞 1,000,000,000,000 OBIES Initial Supply
-🔐 1 year Locked LP MudraLocker
-💎 Diamond Handed Dev and Community
-
-
-🦦OBIEnfts Are Available NOW 
-📢 NFT Giveaways in the Telegram Group! 
-
-🏴󠁧󠁢󠁳󠁣󠁴󠁿 Scottish Dev
-🚀 Clothing Line In Development
-
-📇 0x72d042b033ea465ed2f532f5d03926d8f956d7a3
-
-💎 LINKS 💎
-Website: https://www.OBIEtokie.com
-Telegram: t.me/OBIEtokie
-Pancakeswap: https://pancakeswap.finance/swap?outputCurrency=0x72d042b033ea465ed2f532f5d03926d8f956d7a3
-Poocoin: https://poocoin.app/tokens/0x72d042b033ea465ed2f532f5d03926d8f956d7a3
-Bogged: https://charts.bogged.finance/?c=bsc&t=0x72d042b033ea465ED2F532f5D03926d8F956D7A3
-Tokensniffer: https://tokensniffer.com/token/0x72d042b033ea465ed2f532f5d03926d8f956d7a3
 
 **#5**
 
+OBIEtokie 🦦 OBIES
 
+Say Hi to Hutch the dev and say a bigger Hello to Obie the pet Ferret!
+Find Obie on Insta! 📢🖼 https://www.instagram.com/obietokie/
 
-TICKER 🚀 OBIES
+🦦 We are the FIRST and ONLY Ferret Meme Token 🦦
 
-💛 Crypto Community Meme/Brand Token
-🌍 We want to bring the crypto space closer together
+Our brand image is still in early development... this is early access post launch, the token infrastructure has been developed the past few days as we didnt expect a 45k MC straight off the bat for the first token we worked on
 
-🦦 Obie is the Devs Ferret 🦦
+💛 Community Orientated Meme / Brand Token
 
-💰 Stash your Bag and Burrow your OBIES.
+🌍 We want to bring the crypto space closer together through community and treating a token like an influencer... OBIE is the mascot, "couldn't think of anyone else as a mascot but my smelly wee lazy boi, gtf with meta shiba inu whatever token, this is my carnavore 1ft long lazy ferret, he stashes everything, so we can now stash him.... also itd be a great advantage to have a real life mascot for a token instead of a figurative made up one. OBIE has his own personality"
 
-📈 Tokenomics
-❤️ 5% Redistribute OBIES to Burrowers
-☑️ 3% Auto LP
-📣 2% Marketing
+💰 Stash your Bag of OBIES, we have Launched
 
-❎ No Presale 
-⚠️ Stealth Launched 2nd Jan 2022
-🚫 RENOUNCED CONTRACT
+📈 Tokenomics https://www.obietokie.com/tokenomics
+10% Total Tax
+5% Redistributed to your OBIES Stash
+3% LP Auto Burned
+2% Marketing
 
-💞 1,000,000,000,000 OBIES Initial Supply
+1,000,000,000,000 OBIES Total Initial Supply
+Launched 2nd Jan 2022 (3 days ago)
+
+150 Holders
+
+45k MC Peak
+6 BNB in LP Locked for a Year
+Strong so far, considering the Conditions of Binance the past few days
+
+🟢 Safu? 🟢 https://www.obietokie.com/safu
+RENOUNCED CONTRACT
 🔐 1 year Locked LP MudraLocker
-💎 Diamond Handed Dev and Community
+Auto LP Burn
 
 
-🦦OBIEnfts Are Available NOW 
-📢 NFT Giveaways in the Telegram Group! 
+🦦OBIEnfts Are Available at https://www.obietokie.com/nft
+📢 NFT Prizes have already been rewarded for promotion
+📢 We want to work on our memes now as the brand is being developed by Hutch. So we are doing meme contests for any telegram members. Come join our Telegram and share memes you've made of OBIE for a chance to win OBIEnfts!
 
-🏴󠁧󠁢󠁳󠁣󠁴󠁿 Scottish Dev
-🚀 Clothing Line In Development
+🏴  Scottish Based Dev
+🚀 Clothing Line in Development for Brand Reccognition
 
-📇 0x72d042b033ea465ed2f532f5d03926d8f956d7a3
+📇 Contract
+0x72d042b033ea465ed2f532f5d03926d8f956d7a3
+
+🦦 VC Open Most Nights On Telegram 🦦
+
+ Jump in if you want to ask any questions or see Obie on vc possibly haha
+
 
 💎 LINKS 💎
-Website: https://www.OBIEtokie.com
-Telegram: t.me/OBIEtokie
+Website: https://www.obietokie.com
+Telegram: https://www.t.me/obietokie
+Safu Links: https://www.obietokie.com/safu
 Pancakeswap: https://pancakeswap.finance/swap?outputCurrency=0x72d042b033ea465ed2f532f5d03926d8f956d7a3
-Poocoin: https://poocoin.app/tokens/0x72d042b033ea465ed2f532f5d03926d8f956d7a3
 Bogged: https://charts.bogged.finance/?c=bsc&t=0x72d042b033ea465ED2F532f5D03926d8F956D7A3
-Tokensniffer: https://tokensniffer.com/token/0x72d042b033ea465ed2f532f5d03926d8f956d7a3
-StaySaFu: >95% https://tools.staysafu.org/scan?a=0x72d042b033ea465ED2F532f5D03926d8F956D7A3
+**6#**
